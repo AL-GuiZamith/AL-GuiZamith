@@ -3,8 +3,9 @@
 - 🌱 I’m currently learning (It will not be said)
 - 💞️ I’m looking to collaborate on with my studies (academic area)
 - 📫 How to reach me? (I won't say :)
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: Steve from Minecraft, Cube and Box
+- ⚡ Fun fact: I like drawing, chatting, sports, games and cooking.
+
 
 - ![](https://media1.tenor.com/m/01liHPUMFooAAAAC/coraje-el-perro-cobarde-saludando-courage-the-cowardly-dog-smile-hi.gif)
 
